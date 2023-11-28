@@ -7,7 +7,7 @@
 ### _Source script 400k_
 
 ## Silahkan Hubungi
-### https://t.me/SatanTech26
+### https://t.me/dzxaktech
 
 ## ⏩ AUTOSCRIPT WEBSOCKET MULTIPORT 443 DETAILS ⏪
 ### Support Vmess Multipath <br> 
